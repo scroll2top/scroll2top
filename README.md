@@ -1,4 +1,4 @@
-👋 Scroll2Top Web Solutions Official Github Account
+👋 Scroll2Top Digital Solutions Official Github Account
 
 👉 https://www.scroll2top.com
 
