@@ -1,6 +1,5 @@
 👋 
-Scroll2Top — FULLY MANAGED CUSTOM WEB SOLUTIONS AGENCY 
-Official Github Account
+Scroll2Top — FULLY MANAGED CUSTOM WEB SOLUTIONS AGENCY
 
 👉 https://www.scroll2top.com
 
