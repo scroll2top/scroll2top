@@ -1,4 +1,6 @@
-👋 Scroll2Top Digital Solutions Official Github Account
+👋 
+Scroll2Top — FULLY MANAGED CUSTOM WEB SOLUTIONS AGENCY 
+Official Github Account
 
 👉 https://www.scroll2top.com
 
